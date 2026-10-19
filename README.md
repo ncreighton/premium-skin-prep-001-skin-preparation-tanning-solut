@@ -1,0 +1,2 @@
+# premium-skin-prep-001-skin-preparation-tanning-solut
+Tired of streaky, uneven tans that make you look like a leopard? The secret isn't the tan—it's the prep. Your Skin Preparation Tanning Solution Soak Record is the missing piece.  This Notion template eliminates the guesswork from pre-tan rituals by giving you a structured, repeatable system. Log every step from exfoliation to solution soak duration
